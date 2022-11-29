@@ -4,7 +4,7 @@ github account. might use, probably not though. not very experienced with this s
 
 - twitter - https://twitter.com/m_ukkiw
 
-/ my accounts and stuff /
+/ accounts and stuff /
 
 - twitter - https://twitter.com/camimeow_
 - tumblr - https://www.tumblr.com/camicameow
