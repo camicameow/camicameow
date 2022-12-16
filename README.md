@@ -6,7 +6,7 @@ github account. might use, probably not though. not very experienced with this s
 
 / accounts and stuff /
 
-- twitter - https://twitter.com/camimeow_
+- twitter - [https://twitter.com/camimeow_](https://t.co/Vxr8GRlCgj)
 - tumblr - https://www.tumblr.com/camicameow
 
 all i have for now, will update as time goes on.
